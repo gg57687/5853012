@@ -23,4 +23,4 @@
 
 立即收藏本站，开启真正日本AV免费在线观看体验，从此告别低质资源站的烦恼。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/gg57687/5853012 ）</span>
